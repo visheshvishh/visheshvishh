@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Data Analyst**
 
-- 📫 How to reach me **vishesh8828@gail.com**
+- 📫 How to reach me **vishesh8828@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
